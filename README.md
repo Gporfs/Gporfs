@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning about computer science.
 - 💞️ I’m looking to collaborate on every project that I can.
 - 📫 How to reach me: Email- gustavorodriguesporfirio@gmail.com or Linkedin - https://www.linkedin.com/in/gustavo-porfirio-a346b8205
+-  ❗  The most part you will see here is in portuguese-br, sorry if you will don't understand.
